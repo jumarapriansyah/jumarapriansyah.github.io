@@ -1,1 +1,0 @@
-# jumarapriansyah.github.io
